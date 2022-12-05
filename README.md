@@ -4,7 +4,7 @@
 
 *My name is Valeria. I'm 25 years old and I live in Russia 🌈*
 
-![](/images/2022-12-05-03-41-39.png)
+![Me](2022-12-05-14-47-40.png)
 
 ## Bio
 
@@ -12,7 +12,7 @@
 
 *Just take a look!*
 
-![](/images/2022-12-05-03-24-54.png)
+![Baikal](2022-12-05-14-48-06.png)
 
 ## Hobbies 
 
@@ -20,7 +20,7 @@
 
 *This is what I'm proud of:*
 
-![](/images/2022-12-05-03-25-13.png)
+![Painting](2022-12-05-14-48-44.png)
 
 ## Animals
 
@@ -28,7 +28,7 @@
 
 *Here is my favorite boy:*
 
-![](/images/2022-12-05-03-31-14.png)
+![Bobcat](2022-12-05-14-49-11.png)
 
 ### FIVE FACTS ABOUT ME
 
